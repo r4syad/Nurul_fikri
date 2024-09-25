@@ -1,2 +1,2 @@
-# Nurulu_fikri
+# Nurul_fikri
 Project dari nurul fikri
